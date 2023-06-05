@@ -1,1 +1,1 @@
-# wayaadhyasta.github.io
+# tyvariel.github.io
